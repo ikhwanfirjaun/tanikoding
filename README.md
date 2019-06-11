@@ -1,2 +1,0 @@
-# tanikoding
-uas bismilllah
